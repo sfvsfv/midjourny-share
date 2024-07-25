@@ -1,2 +1,6 @@
 # midjourny-share
-即将上线，敬请期待。
+
+地址：https://www.mjourney.online/list
+
+
+
